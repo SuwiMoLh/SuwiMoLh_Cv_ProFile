@@ -1,1 +1,1 @@
-# [♡   ·͜·♡   യ SuWiMoL_Cv  𓈒 * ♡⃛ ꔛ](https://suwimolh-cv-profile.vercel.app)
+# [♡യ  SuWiMoL_Cv  ♡⃛ ꔛ](https://suwimolh-cv-profile.vercel.app)
